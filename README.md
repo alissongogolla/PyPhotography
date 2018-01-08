@@ -8,4 +8,4 @@ Esta Maquina Semiótica é a minha caixa preta, nela programei as funções e po
 
 Maquina Semiótica, deixo a câmera de lado e me concentro na imagem técnica, sou programático, mas nem por isso menos fotografo. 
 
-Link para o site: 
+Link para o site: http://alissongogolla.com/portfolio/maquina-semiotica/
